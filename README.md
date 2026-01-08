@@ -1,16 +1,21 @@
-## Hi there 👋
+## i do NOT know how ts work.. if u make a readme for me like a staticbelle themed or charlie themed ill give you a bigass kiss on your lips. /p
 
-<!--
-**staticbellee/Staticbellee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+###     heyaa!!! names ari ,, you can call me ... vix, lute or charlie!
 
-Here are some ideas to get you started:
+  I'm a female but my prns are.. she/belle/belles!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  do int with me anytime! 
+
+  fandoms im recently in.. ::. 
+  Hzbn hotel
+  helluva
+  let him go
+  Dandys world
+  tadc
+  md
+  Saiki k. 
+  the object show (MAYBEEE????)
+
+  dni: people under 9 years old unless close or sum..? & people over 30 years old (😭) unless close
+
+  check prn.cc for more info! 
