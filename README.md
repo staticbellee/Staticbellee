@@ -16,6 +16,6 @@
   Saiki k. 
   the object show (MAYBEEE????)
 
-  dni: people under 9 years old unless close or sum..? & people over 30 years old (😭) unless close
+  dni people under 9 years old unless close or sum..? & dni people over 30 years old (😭) unless close (maybe.)
 
   check prn.cc for more info! 
